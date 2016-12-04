@@ -1,7 +1,1 @@
-Free!!!
-!!!!!!!!
-asdfasdf
-wer
-
-
-asdfsaf
+Public domain license
